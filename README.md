@@ -1,6 +1,14 @@
 # Not yet
 
+[#firerhule](https://twitter.com/hashtag/firerhule)
+
 ## Carolina Panthers with Rhule
+
+### Overall Record
+
+| Win | Lose | Win % | QBs |
+|-----|------|-------|-----|
+| 10 | 25 | 28.57% | 5 |
 
 ### 2022 Season
 
