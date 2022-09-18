@@ -22,3 +22,8 @@
 ### [2020 Season](https://www.panthers.com/schedule/2020/)
 
 5-11
+
+## Not-so-fun Rhule Facts
+
+- Currently on an 11-game losing streak
+- 
