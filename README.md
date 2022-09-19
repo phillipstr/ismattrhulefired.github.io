@@ -28,7 +28,7 @@
 ## Some not-so-fun Rhule Facts
 
 - Currently on an 11-game losing streak
-- It has been 308 days since our last win (11/14/2021 @ Cardinals*)
+- It has been over 300 days since our last win (11/14/2021 @ Cardinals*)
 - Started 2021 season 3-0, only won two of the next 14 games
 - There are four years left on his contract<sup>[1](https://www.si.com/nfl/2022/01/08/carolina-panthers-plan-to-keep-matt-rhule-for-2022-season)</sup>
 - The Rhule-led Panthers are 1-25 when our opponent scores >= 17 points
