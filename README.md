@@ -13,11 +13,11 @@
 
 | Win | Lose | Win % | QBs |
 |-----|------|-------|-----|
-| 11 | 25 | 30.55% | 5 |
+| 11 | 26 | 29.73% | 5 |
 
 ### [2022 Season](https://www.panthers.com/schedule/2022/)
 
-1-2
+1-3
 
 ### [2021 Season](https://www.panthers.com/schedule/2021/)
 
