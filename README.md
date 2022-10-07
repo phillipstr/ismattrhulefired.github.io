@@ -7,7 +7,7 @@
 
 ## Carolina Panthers with Rhule (so far)
 
-**Current (9/27/2022) Power Rank:** [29](https://www.nfl.com/news/nfl-power-rankings-week-4-2022-nfl-season) &uarr; 2
+**Current (10/7/2022) Power Rank:** [31](https://www.nfl.com/news/nfl-power-rankings-week-5-2022-nfl-season) &darr; 2
 
 ### Overall Record
 
