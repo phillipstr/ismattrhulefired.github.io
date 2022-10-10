@@ -3,7 +3,7 @@
 [#firerhule](https://twitter.com/hashtag/firerhule)
 [#keeppounding](https://twitter.com/hashtag/keeppounding)
 
-10/10/2022 Update - [Panthers part ways with Matt Rhule](https://www.panthers.com/news/panthers-part-ways-with-head-coach-matt-rhule)
+10/10/2022 Update - [Panthers part ways with Matt Rhule](https://www.panthers.com/news/panthers-part-ways-with-head-coach-matt-rhule)  
 09/25/2022 Update - [Tepper has patience](https://www.nfl.com/news/panthers-owner-david-tepper-expected-to-be-patient-with-head-coach-matt-rhule-as)
 
 ## Carolina Panthers with Rhule (so far)
